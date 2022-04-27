@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BigDDave1
+- 👀 I’m interested in Big asses
+- 🌱 I’m currently learning C#
+- 💞️ I’m looking to collaborate on PH
+- 📫 How to reach me Good  Question
